@@ -1,4 +1,7 @@
 <p align="center">
+  <img src=https://github.com/user-attachments/assets/ec544e61-3763-441b-92c9-e4560811d019
+</p>
+<p align="center">
   <img src=https://github.com/user-attachments/assets/dd0a0ced-19cf-40a0-9641-66fbf78996bc
 </p>
 <h1 align="center"> <a href="https://t.me/F6031" target="_blank">ифно в тгк</a> и <a href="https://sntry.cc/dipsomania" target="_blank">в снтри</a> потписка лаик и колоколчик
